@@ -6,4 +6,8 @@
 
 •Coofundador do podcast Podizê das sala de altas habilidades (superdotação) 
 
+•Me siga no Instagram @argenta_rosa
+
 •Quero cada vez aprender mais, e ensinar também 
+
+•https://m.youtube.com/@podize1
