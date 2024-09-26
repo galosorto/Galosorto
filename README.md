@@ -1,4 +1,9 @@
-Esse é o meu perfil◇
-Me chama Guilherme◇
-Bicho compartilhar nos conhecimentos e minhas aprendizagens no alura, scratch,Java e muito mais◇
-E seu minuto fico você verá então Vamos aprender juntos vamos aprender juntos♡♡
+•Eu sou o Guilherme 
+
+•Estudante do colégio Profª Leonor Castellano EFM 
+
+•Cursando no aplicativo profissionalizante Alura, na área de programação 
+
+•Coofundador do podcast Podizê das sala de altas habilidades (superdotação) 
+
+•Quero cada vez aprender mais, e ensinar também 
